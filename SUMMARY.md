@@ -12,5 +12,5 @@
 
 ## Walsh
 
-* [Sleepover](walsh/sleepover.md)
+* [Cabin Trip Sleepover](walsh/sleepover.md)
 

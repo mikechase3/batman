@@ -2,7 +2,7 @@
 description: Maria M. Gerry V. Donald W. Mike Chase
 ---
 
-# Sleepover
+# Cabin Trip Sleepover
 
 ## What Are We Doing?
 
