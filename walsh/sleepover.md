@@ -70,15 +70,14 @@ September 27-28
 * 1 set of bunk beds
 * 1 full bed.
 
-### Landoll's Mohican Castle Luxury Motel
-
-### Malabar Farm State Park
-
 ### Ravenwood Castle
 
 * Rooms inside the castle.
 * Medieval cottages surrounding the place.
 * 3 hour drive from Cleveland.
+* Medieval games, like the malted meepball. \(Dungeons and Dragons\).
+* 2hr drive from Dayton.
+* 3hrs from Cleveland.
 
 #### Housing: Duke's Dungeon \(Sex Dungeon\)
 
