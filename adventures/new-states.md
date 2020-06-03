@@ -8,5 +8,5 @@ It's probably just going to be me, alone. But it would be so delightful if someo
 
 ## What Are We Doing?
 
-* Going to 
+* Going to ride horses in a super cool national park.
 
