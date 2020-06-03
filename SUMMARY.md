@@ -9,6 +9,7 @@
 
 * [Canada](adventures/canada.md)
 * [Skydiving](adventures/skydiving.md)
+* [New States](adventures/new-states.md)
 
 ## Walsh
 
