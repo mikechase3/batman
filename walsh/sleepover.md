@@ -4,6 +4,8 @@ description: Maria M. Gerry V. Donald W. Mike Chase
 
 # Cabin Trip Sleepover
 
+![](../.gitbook/assets/camping-1920x1080-.jpg)
+
 ## What Are We Doing?
 
 We're getting a cabin in the woods, and playing risk. I think.
