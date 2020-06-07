@@ -10,6 +10,34 @@ description: Maria M. Gerry V. Donald W. Mike Chase
 
 We're getting a cabin in the woods, and playing risk. I think.
 
+## Primary Plan
+
+### Use This [Link](https://docs.google.com/document/d/1koZweePlaOmFYY6wqEYLLmADBJMwEvWqINsihUVRP2M/edit)
+
+[Use this link for the most updated plan.](https://docs.google.com/document/d/1koZweePlaOmFYY6wqEYLLmADBJMwEvWqINsihUVRP2M/edit)
+
+### Outdated Plan Below
+
+* **Logistics**
+  * **Location- TBA, based upon what we want to do and availability**
+    * **The spreadsheet previously shared is just the locations which would offer pontoon rentals, however there are many more options which can be considered.** 
+    * **Previous areas discussed would be Ohio wine country, ie Geneva-on-the-Lake or Youngstown area.**
+  * **Timing- fill out whenisgood poll or signup poll \(IDK, just use your name\), links below. From there, we will pick the collective best day and go from there. Present top days would be June 26, July 17, or August 14.**
+    * **Signup-** [**www.signup.com/**](http://www.signup.com/)
+    * **Whenisgood-** [**www.whenisgood.net/walsh-camp-2020**](http://www.whenisgood.net/walsh-camp-2020)
+  * **For the weekend, we want to allow for people to come and go as needed, and people can visit without spending the night if concerned/issues.  Cars and logistics will be arranged closer to the date.** 
+* **Costs**
+  * **The goal is to be under $100 without special food or alcohol costs.**
+    * **Spot rental- $30-50 each \(depending on location\)**
+    * **Watersports rental- see spreadsheet on pontoons, kayaks are like $20-40** 
+  * **Costs will be shared as equally as possible, address any issues with finances as things come up/**
+* **Safety**
+  * **Can be outlined further, it just depends upon the preferences of parents**
+  * **Oldest person \(me\) is 23, and since we are all in college I’m not anticipating major concerns since we are adults.** 
+* **Resources**
+  * **Elise has way too many resources \(2 tents with combined “capacity” of 14 people, chairs, camp stoves, coolers, tarps, hammocks with straps, fishing polls, etc.\)**
+  * **A spreadsheet will be made based upon peoples’ demands and needs and people will need to sign up accordingly for what they have.**  
+
 ## Cabins
 
 ### Punderson Manner \(Or Hillside Manor\)
