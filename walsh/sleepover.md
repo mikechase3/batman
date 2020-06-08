@@ -1,5 +1,5 @@
 ---
-description: Maria M. Gerry V. Donald W. Mike Chase
+description: 'Maria M. Gerry V. Donald W. Mike Chase, Marissa J. Elise K.'
 ---
 
 # Cabin Trip Sleepover
