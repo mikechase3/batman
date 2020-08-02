@@ -14,4 +14,5 @@
 ## Walsh
 
 * [Cabin Trip Sleepover](walsh/sleepover.md)
+* [Flame Thrower](walsh/flame-thrower.md)
 
